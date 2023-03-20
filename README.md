@@ -1,3 +1,6 @@
+
+![Astronauts Speeding Through the Universe](EptE6_cWMAA9OwP.jpeg)
+
 ### Hi there 👋
 
 Some highlights about me: 
